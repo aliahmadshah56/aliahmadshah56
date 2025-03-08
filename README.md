@@ -6,9 +6,7 @@
 
 💞️ I’m looking to collaborate on innovative app projects and explore new technologies
 
-📫 How to reach me: www.a7726867@example.com
-
-😄 Pronouns: he/him
+📫 How to reach me: www.a7726867@gmail.com
 
 ⚡ Fun fact: I developed an app in a weekend for a hackathon and received first place recognition.
 <!---
